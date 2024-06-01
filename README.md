@@ -5,9 +5,8 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rohanthegeek&label=Profile%20views&color=0e75b6&style=flat" alt="rohanthegeek" /> </p>
 
-- 📝 I regularly write articles on [https://rohangamin.blogspot.com/](https://rohangamin.blogspot.com/)
 
-- 💬 Ask me about **CSS, Python**
+- 💬 Ask me about **CSS, Python, AI, ML**
 
 - 📫 How to reach me **rohan.m.reddy@gmail.com**
 
