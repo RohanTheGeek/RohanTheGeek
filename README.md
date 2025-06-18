@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rohan.m.reddy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Nz7H-HxG8zh-IGActuoat9zXD6cWXAxH/view?usp=drive_link](https://drive.google.com/file/d/1Nz7H-HxG8zh-IGActuoat9zXD6cWXAxH/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Nz7H-HxG8zh-IGActuoat9zXD6cWXAxH/view?usp=drive_link](https://drive.google.com/file/d/1QF5G1hls9cJEkVYoNf_jGETipf12Ffgo/view?usp=sharing)
 
 - ⚡ Fun fact **I am very humorous**
 
